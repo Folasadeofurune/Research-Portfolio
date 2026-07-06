@@ -1,28 +1,7 @@
 My research explores how social, economic, and structural factors influence health outcomes among vulnerable and underserved populations. I use epidemiological methods, quantitative analysis, and program evaluation to generate evidence that informs policy, strengthens public health programs, and promotes health equity. 
 
 **Research Interests:** 
-
-Mental Health Epidemiology 
-
-Black Immigrant Health 
-
-Health Equity 
-
-Social Determinants of Health 
-
-Population Health 
-
-Global Health 
-
-Maternal and Child Health 
-
-Program Evaluation 
-
-Community-Based Participatory Research 
-
-Health Systems Strengthening 
-
-Knowledge Translation 
+Mental Health Epidemiology, Black Immigrant Health, Health Equity, Social Determinants of Health, Population Health, Global Health, Maternal and Child Health, Program Evaluation, Community-Based Participatory Research, Health Systems Strengthening, Knowledge Translation 
 
 
 **Current Research:** 

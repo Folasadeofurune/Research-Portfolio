@@ -3,16 +3,27 @@ My research explores how social, economic, and structural factors influence heal
 **Research Interests:** 
 
 Mental Health Epidemiology 
+
 Black Immigrant Health 
+
 Health Equity 
+
 Social Determinants of Health 
+
 Population Health 
+
 Global Health 
+
 Maternal and Child Health 
+
 Program Evaluation 
+
 Community-Based Participatory Research 
+
 Health Systems Strengthening 
+
 Knowledge Translation 
+
 
 **Current Research:** 
 Mental Health Among Black Immigrants in Canada
